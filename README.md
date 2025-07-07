@@ -14,7 +14,7 @@
 Music Producer, Singer, Student, Violin
 Learning...爭做銳評大王！
 网易云, Twitter, Ins, Spoti.
-现居北京，偶尔深圳
+现居香港，偶尔深圳北京
 
 <!---
 zongtianshuo/zongtianshuo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
